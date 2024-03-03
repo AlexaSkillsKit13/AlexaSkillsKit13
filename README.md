@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AlexaSkillsKit13
 - 👀 I’m interested in ...деньги
 - 🌱 I’m currently learning ...управлять
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...Страной
 - 📫 How to reach me ...89635657127
 - 😄 Pronouns: ...Я
 - ⚡ Fun fact: ...гений
